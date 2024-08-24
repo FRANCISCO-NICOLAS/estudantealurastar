@@ -1,3 +1,4 @@
+Este trabalho é marcado com CC0 1.0 
 ### Boas vindas ao meu perfil :blue_heart
 
 Meu nome é francisco nicolas
